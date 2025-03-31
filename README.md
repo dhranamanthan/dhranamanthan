@@ -38,8 +38,8 @@ I am passionate about exploring and enhancing the field of **cybersecurity**. My
 ---
 
 ## 📫 Connect with Me:
-- 💌 Email: [manthandhrana4@gmail.com](mailto:manthandhrana4@gmail.com)
-- 🔗 LinkedIn: https://www.linkedin.com/in/dhranamanthan
+- 💌 Email: 
+- 🔗 LinkedIn: 
 - 🌐 Portfolio: 
 
 ---
